@@ -1,4 +1,4 @@
-Hello there, I’m @Suryaaaaaaa ,
+Hello there ,
 currently learning how to make money from programming ,
 looking to collaborate for experience or anything can make me grow ,
 email : suryasyalala3@gmail.com ;
